@@ -1,0 +1,1 @@
+gospodi pust vsio poluchitsa
